@@ -5,7 +5,7 @@ Looking for the current **9ct gold price per gram** in the UK?
 Gold prices change daily based on the live market rate, so it's important to check an accurate and up-to-date source before selling your gold.
 
 👉 **Check the latest 9ct gold price per gram here:**
-https://moonstonegold.co.uk/9ct-gold-price/
+[9ct Gold Price Per Gram UK](https://moonstonegold.co.uk/9ct-gold-price/)
 
 ## About 9ct Gold Pricing
 
@@ -25,4 +25,4 @@ https://moonstonegold.co.uk/9ct-gold-price/
 
 For a reliable and regularly updated guide, visit:
 
-🔗 https://moonstonegold.co.uk/9ct-gold-price/
+👉 [Current 9ct Gold Price UK](https://moonstonegold.co.uk/9ct-gold-price/)
